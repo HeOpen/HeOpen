@@ -1,5 +1,5 @@
 - 👋 Hola buenas, soy @HeOpen
-- 👀 Informática, música clásica, juegos & consolas, hacking & jailbreak ...
+- 👀 Informática, juegos & consolas, hacking & jailbreak, montajes de equipos, mantenimiento y limpieza && ...
 - 🌱 Estudiando DAM, aprendiendo Java
 - 📫 00eliabaeed1@gmail.com
 - 🌎 Portugués C2, Inglés B2, Español B2, Ruso A2.
